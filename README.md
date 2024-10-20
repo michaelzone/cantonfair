@@ -1,4 +1,4 @@
-# Canton Fair 广交会参展商名录 | 有偿分享
+# 136th Canton Fair 136届广交会参展商名录 | 有偿分享
 联系方式：❤imichaelhere | [公众号：外贸赶路人](https://mp.weixin.qq.com/s/p3byV8yAOmHQNdU3FnEqxw)
 
 ✅2024年136届秋季广交会参展商名录
